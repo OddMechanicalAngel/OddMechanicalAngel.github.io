@@ -8,6 +8,8 @@ Odd Mechanical Angel has taken up the art of blogging as a way to show off her w
 
 ### Contact me
 
-Feel free to visit Odd Mechanical Angel on her Facebook page, and follow her on Instagram. If you love her work you can send any contributions to her tea habit and college expenses to http://oddmechanicalangel.tip.me/
+Feel free to visit Odd Mechanical Angel on her Facebook page, and follow her on Instagram if you’d like a taste of her photography. 
+
+If you love her work you can send any contributions to her tea habit and college expenses to http://oddmechanicalangel.tip.me/
 
 [email@domain.com](mailto:email@domain.com)
