@@ -12,4 +12,4 @@ Feel free to visit Odd Mechanical Angel on her [Facebook page](www.facebook.com/
 
 If you love her work you can send any contributions to her tea habit and college expenses to [her TipMe page](http://oddmechanicalangel.tip.me/)
 
-[Click here to send Odd Mechanical Angel an email!](mailto:annique@maujean.org)
+[Click here to send Odd Mechanical Angel an email!](mailto:oddmechanicalangel@gmail.com)
