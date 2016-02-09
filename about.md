@@ -8,7 +8,7 @@ Odd Mechanical Angel has taken up the art of blogging as a way to show off her w
 
 ### Contact me
 
-Feel free to visit Odd Mechanical Angel on her Facebook page. Follow her on Instagram if you’d like a taste of her photography. 
+Feel free to visit Odd Mechanical Angel on her [Facebook page](www.facebook.com/oddmechanicalangel). Follow her on [Instagram](www.instagram.com/oddmechanicalangel) if you’d like a taste of her photography. 
 
 If you love her work you can send any contributions to her tea habit and college expenses to [her TipMe page](http://oddmechanicalangel.tip.me/)
 
